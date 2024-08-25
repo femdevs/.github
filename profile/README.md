@@ -8,7 +8,7 @@ We are always looking for new ways to improve our products and services, and we 
 
 ## Hiring
 
-We are always looking for more users to join us. If you are interested in working with us on our indevors, please send us an email at <hiring@thefemdevs.com>
+We are always looking for more users to join us. If you are interested in working with us on our endeavors, please send us an email at <hiring@thefemdevs.com>
 
 ## Community
 
