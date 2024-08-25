@@ -4,7 +4,7 @@ FemDevs is a small software development company, founded in February 2023 by Ale
 
 In July of 2023, we have helped over 12,000 people and started to sell high quality products. By the end of 2023, we have helped over 50,000 people. We have continued to grow and expand our services, and we are always looking for new ways to improve. We are excited to see what the future holds for FemDevs, and we are grateful for all of the support that we have received.
 
-We are always looking for new ways to improve our products and services, and we are excited to see what the future holds for FemDevs. We are dedicated to providing high-quality software solutions to small businesses and individuals, and we are always looking for new ways to expand our services. We are excited to see what the future holds for FemDevs, and we are grateful for all of the support that we have received.
+We are always looking for new ways to improve our products and services. We are dedicated to providing high-quality software solutions to small businesses and individuals, and we are always looking for new ways to expand our services.
 
 ## Hiring
 
