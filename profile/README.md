@@ -12,4 +12,4 @@ We are always looking for more users to join us. If you are interested in workin
 
 ## Community
 
-We have an ever expanding community on multiple platforms! You can join our [Discord Server](https://discord.gg/FgQvDW8jtr), talk in our [SubReddit](https://reddit.com/r/femdevs), or follow us on [Twitter](https://x.com/officialfemdevs), [Instagram](https://instagram.com/officialfemdevs), [TikTok](https://tiktok.com/@femdevs), or [FemboyLand](https://femboyland.eu/view-persons-profile/femdevs).
+We have an ever expanding community on multiple platforms! You can join our [Discord](https://discord.gg/75BcNV5y5s), talk in our [SubReddit](https://reddit.com/r/femdevs), or follow us on [Twitter](https://x.com/officialfemdevs), [Instagram](https://instagram.com/officialfemdevs), [TikTok](https://tiktok.com/@femdevs), or [FemboyLand](https://femboyland.eu/view-persons-profile/femdevs).
