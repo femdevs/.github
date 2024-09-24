@@ -1,4 +1,4 @@
-# <img height=72 alt="FemDevs Logo" src="https://cdn.thefemdevs.com/assets/images/icon/pink"/>
+# <img height=72 alt="FemDevs Logo" src="https://thefemdevs.com/assets/images/icon/pink"/>
 
 FemDevs is a small software development company, founded in February 2023 by Alex and Oblong. We are based in the United States, and we are dedicated to providing high-quality software solutions to small businesses and individuals. We are passionate about what we do, and we are always looking to improve our products and services.
 
